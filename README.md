@@ -11,3 +11,6 @@ WE SHARE THIS PROJECT FOR EDUCATIONAL PURPOSES ONLY, TO LEARN HOW THIS PROJECT W
 WE WILL NEVER OFFER HELP AND SUPPORT WITH THIS PROJECT. DON'T ask how to use it and/or fixing the project, instead learn from the internet or ask for help on any modding community forum sites.
 
 DON'T SELL THE SOURCE, DON'T BUY FROM SOMEONE EITHER WHEN YOU CAN GET IT FOR FREE, DON'T GET SCAMMED. SAVE YOU MONEY
+
+<img src="/storage/emulated/0/Android/data/text2html.app/files/images/782540655_1657294494228.gif" caption="" alt="" height="375" width="420"/><br/>
+<br/>
