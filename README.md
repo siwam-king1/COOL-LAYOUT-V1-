@@ -12,5 +12,4 @@ WE WILL NEVER OFFER HELP AND SUPPORT WITH THIS PROJECT. DON'T ask how to use it 
 
 DON'T SELL THE SOURCE, DON'T BUY FROM SOMEONE EITHER WHEN YOU CAN GET IT FOR FREE, DON'T GET SCAMMED. SAVE YOU MONEY
 
-<img src="/storage/emulated/0/Android/data/text2html.app/files/images/782540655_1657294494228.gif" caption="" alt="" height="375" width="420"/><br/>
-<br/>
+<a href="https://raw.githubusercontent.com/James404-cyber/James404-cyber/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif"><img src="https://raw.githubusercontent.com/James404-cyber/James404-cyber/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif" alt="IMG-20220708-192621-787" border="0" /></a>
